@@ -120,7 +120,7 @@ Email: <a href="mailto:abhinavdahake@gmail.com">abhinavdahake@gmail.com</a>
 </p>
 
 <p>
-GitHub: <a href="https://github.com/Nav45666">github.com/Nav45666</a>
+GitHub: <a href="https://github.com/NaV456727">github.com/NaV456727</a>
 </p>
 
 <p>
